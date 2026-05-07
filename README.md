@@ -4,7 +4,7 @@
 
 🚀 About Me
 
-Hey there! I’m Ishadebbarma—a creator, coder, and innovator who loves turning ideas into reality. Always building, always learning.
+I’m a creator, coder, and innovator who loves turning ideas into reality. Always building, always learning.
 
 ✨ What You’ll Find Here
 
